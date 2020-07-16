@@ -1,3 +1,3 @@
 # LegendsOnly.Com
 
-## The Hottest Singles in the Outlands
+- The Hottest Singles in the Outlands -
